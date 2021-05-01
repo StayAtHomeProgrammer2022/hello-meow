@@ -1,2 +1,3 @@
 # hello-meow
-just you know bunch of bs.
+Just you know bunch of BS.
+this is fun i think i will keep this up
